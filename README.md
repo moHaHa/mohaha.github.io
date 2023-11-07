@@ -1,2 +1,0 @@
-# mohaha.github.io
-pages
